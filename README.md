@@ -3,6 +3,6 @@ My name is Rodolfo Ramirez, I graduated from CSUF this year with a degree in CS.
 
 Fun Facts:
 * Attended San Diego Marathon 2026 ( 5:43:11 total time )
-* Got 3rd place in LA Tri-Series Super Sprint Triathalon
-* Eagle Scout
+* Got 3rd place in LA Tri-Series Super Sprint Triathalon 2025
+* Eagle Scout 2022
 * Pineapple on Pizza is the best combo
